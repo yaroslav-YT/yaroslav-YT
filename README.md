@@ -9,5 +9,9 @@ patinet: YES
 <img width="478" height="453" alt="ytpfp" src="https://github.com/user-attachments/assets/80de1093-62f8-43b1-afe2-07e163ae9365" />
 hi there
 
-<img width="347" height="529" alt="Снимок экрана 2026-09-10 144525" src="https://github.com/user-attachments/assets/1a291f99-147a-4774-9692-3c04a01fbf70" />
-oh wait *catches fire*
+
+<img width="493" height="334" alt="Снимок экрана 2026-08-19 161621" src="https://github.com/user-attachments/assets/d8a2ae52-3f42-4bef-9542-6087713a6623" />
+
+
+
+
